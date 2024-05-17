@@ -1,4 +1,4 @@
-![violet-evergarden-anime](https://github.com/MaryyMP/MaryyMP/assets/170035103/db3a3308-15e9-4f00-ae6d-fc6eeb2e1780)### Hello, everymeow 🐈‍⬛😊
+### Hello, everymeow 🐈‍⬛😊
 
 Sou Marianna Almeida
 
@@ -10,6 +10,8 @@ Sou Marianna Almeida
 
 @ma.ssanches
 0000110517430xsp@al.educacao.sp.gov.br 
+
+
 
 ![](https://media1.tenor.com/m/B_JMfvWhHRgAAAAd/violet-evergarden-anime.gif)
 
