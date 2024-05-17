@@ -1,14 +1,15 @@
-### Hello, everymeow 👋
+![violet-evergarden-anime](https://github.com/MaryyMP/MaryyMP/assets/170035103/db3a3308-15e9-4f00-ae6d-fc6eeb2e1780)### Hello, everymeow 🐈‍⬛😊
 
-<!--I'm Marianna Almeida...
+Sou Marianna Almeida
 
+- Estou estudando [Alura](https://www.alura.com.br)
+- Estou me desenvolvendo na linguagem JavaScript
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-- 🔭 I’m currently working on Alura ...
-- 🌱 I’m currently learning JavaScript ...
-- I use this space for the development and organization of my project ...
+### Entre em contato comigo! :) ⤵️
 
-I'm free for questions! :)
--->
-### Call me!
+@ma.ssanches
+0000110517430xsp@al.educacao.sp.gov.br 
 
-000110517430xsp@al.educacao.sp.gov.br 
+![](https://media1.tenor.com/m/B_JMfvWhHRgAAAAd/violet-evergarden-anime.gif)
+
